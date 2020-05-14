@@ -1,0 +1,2 @@
+# SovietCommunistParty-
+for story
